@@ -1,0 +1,2 @@
+- oi,eu sou emilly fernanda do 1a n15
+- estudo no colegio joao bettega e estou estudando
